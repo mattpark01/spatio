@@ -1,2 +1,2 @@
 # spatio
-The Future of Social is Decentralized
+The Multiverse Gateway, Protocol and Ecosystem
